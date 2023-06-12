@@ -1,0 +1,3 @@
+My Cybersecurity Professional Statement
+
+My name is Bilal Mohamed. I am a motivated individual embarking on an exciting new journey into Cybersecurity. I am passionate about solving problems that require me to develop certain solutions to best resolve the issue. I’m excited to gain expertise in areas such as secure coding, penetration testing and cloud security. I feel as if my current skill sets coincide with what I will be learning during this Cybersecurity journey and will make it easy for me to excel continuously. As I progress in my journey, I will continue to pursue more certifications, network with experienced professionals, and build a strong foundation for my Cybersecurity career.
